@@ -1,8 +1,11 @@
-### *Hi, I’m Adarsh!👋*
+# ***Hi, I’m Adarsh!👋***
 
-         
------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
-                                            **A Guy dedicated to Leran New Technologies**
+       
+       
+### **A Guy dedicated to Learn New Technologies**
+
+ ***I am currently a student who's focused to learn new***
+  ***technologies and specially the "web designing"***
 
 
 - 👀 I’m interested in ...Learning New Technologies.
