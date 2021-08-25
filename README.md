@@ -12,6 +12,6 @@
   - 📧Gmail-@adarshthakare1998@gmail.com 
   - 🌟 Twitter- https://twitter.com/thakare_adarsh?s=08
   - 🤙 7721889934
-- 😆 Fun Fact...I am a proffesional photographer
+- 😆 Fun Fact...I am a professional photographer
   - 📸 https://instagram.com/adarsh_thakare_photography?utm_medium=copy_link.
 
