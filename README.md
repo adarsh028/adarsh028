@@ -5,7 +5,7 @@
 ### **A Guy dedicated to Learn New Technologies**
 
  ***I am currently a student who's focused to learn new***
-  ***technologies and specially the "web designing"***
+  ***technologies and specially the "web devlopment"***
 
 
 - 👀 I’m interested in ...Learning New Technologies.
